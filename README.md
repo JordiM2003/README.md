@@ -11,3 +11,5 @@ Aquí se explican las [características de los animales carnívoros](https://www
 ![Sin titulo](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.caracteristicass.de%2Fanimales-carnivoros%2F&psig=AOvVaw3-ng_C_HZPcla40v4fg5Qs&ust=1600451134514000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCPDWz5zf8OsCFQAAAAAdAAAAABAE)   
 ## OMNÍVOROS: ##  
 Los anuimales ***omnívoros*** se caracterizan porque se alimentan tanto de plantas como de carne animal. No están específicamente adaptados para comer vegetales ni carne exclusivamente.  
+¡Aquí te traigo [9 espécies de animales omnívoros](https://myanimals.com/es/9-animales-omnivoros/) que posiblemente no sabías que lo eran!  
+![Sin titulo](https://myanimals.com/es/wp-content/uploads/2018/01/prevenir-plaga-ratones.jpg)  
