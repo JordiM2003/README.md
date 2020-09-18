@@ -8,7 +8,7 @@ Aquí puedes encontrar algunas [curiosidades sobre los animales herbívoros](htt
 ## CARNÍVOROS: ##  
 Los animales ***carnívoros*** obtienen sus nutrientes a través del consumo de carne, ya sea por depredación o por consumo de carroña.  
 Aquí se explican las [características de los animales carnívoros](https://www.animalescarnivoros.net/) por si te interesan.  
-![Sin titulo](https://www.google.com/imgres?imgurl=https%3A%2F%2Fdefinicionyque.es%2Fwp-content%2Fuploads%2F2016%2F07%2FCarn%25C3%25ADvoro.jpg&imgrefurl=https%3A%2F%2Fdefinicionyque.es%2Fcarnivoro%2F&tbnid=-0T0IeZuMWjZYM&vet=12ahUKEwiyqd-khPPrAhVM0uAKHXwACUMQMygJegUIARDeAQ..i&docid=F6zwXbBCjW_b3M&w=720&h=440&q=carnivoro&safe=strict&ved=2ahUKEwiyqd-khPPrAhVM0uAKHXwACUMQMygJegUIARDeAQ)       
+![Sin titulo](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.animalesomnivoros.org%2Fdiferencias%2F&psig=AOvVaw0QJHm8S8IIEZ8jNt-NDlIa&ust=1600529804243000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCNiXoPKF8-sCFQAAAAAdAAAAABAU)       
 ## OMNÍVOROS: ##  
 Los animales ***omnívoros*** se caracterizan porque se alimentan tanto de plantas como de carne animal. No están específicamente adaptados para comer vegetales ni carne exclusivamente.  
 ¡Aquí te traigo [9 espécies de animales omnívoros](https://myanimals.com/es/9-animales-omnivoros/) que posiblemente no sabías que lo eran!  
