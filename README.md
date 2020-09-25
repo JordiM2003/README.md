@@ -3,8 +3,7 @@
 Estos son los tres tipos de clase de animal según su alimentación:
 ## HERBÍVOROS: ##
 Los animales ***herbívoros*** se alimentan principalmente de plantas, aunque muchos de ellos también se alimentan de proteïnas animales, como insectos, huevos, etc.   
-Aquí puedes encontrar algunas [curiosidades sobre los animales herbívoros](https://www.expertoanimal.com/animales-herbivoros-ejemplos-y-curiosidades-21074.html).  
-![Sin titulo](http://www.razas-caballos.com/Imagenes/caballo-alter-real-pastando.jpg)   
+Aquí puedes encontrar algunas [curiosidades sobre los animales herbívoros](https://www.expertoanimal.com/animales-herbivoros-ejemplos-y-curiosidades-21074.html).  ![Sin titulo](http://www.razas-caballos.com/Imagenes/caballo-alter-real-pastando.jpg)   
 ## CARNÍVOROS: ##  
 Los animales ***carnívoros*** obtienen sus nutrientes a través del consumo de carne, ya sea por depredación o por consumo de carroña.  
 Aquí se explican las [características de los animales carnívoros](https://www.animalescarnivoros.net/) por si te interesan.  
